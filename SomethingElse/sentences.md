@@ -111,6 +111,3 @@ Eyes are raining for her, heart is holding umbrella for her, this is love.
 
 <br/>
 
-
-
-What ever
